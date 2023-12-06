@@ -45,3 +45,11 @@ https://tradingeconomics.com/venezuela/gdp
 
 https://www.statista.com/statistics/371876/gross-domestic-product-gdp-per-capita-in-venezuela/
 
+https://fpif.org/greenwashing-exxonmobils-oil-boom-in-guyana/
+
+https://corporate.exxonmobil.com/locations/guyana/guyana-project-overview
+
+https://theintercept.com/2023/06/18/guyana-exxon-mobil-oil-drilling/
+
+https://www.ft.com/content/46af09ca-90e2-4d96-b35d-4434ebd93750
+
