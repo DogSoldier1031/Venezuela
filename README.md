@@ -45,6 +45,10 @@ https://tradingeconomics.com/venezuela/gdp
 
 https://www.statista.com/statistics/371876/gross-domestic-product-gdp-per-capita-in-venezuela/
 
+Venezuela, Guyana & Exxon
+
+https://www.telesurenglish.net/news/Venezuelans-in-Near-Consensus-on-Essequibo-Referendum-20231203-0025.html
+
 https://fpif.org/greenwashing-exxonmobils-oil-boom-in-guyana/
 
 https://corporate.exxonmobil.com/locations/guyana/guyana-project-overview
